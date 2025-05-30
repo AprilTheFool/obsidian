@@ -1,0 +1,1 @@
+Character wears headphones with a Walkman constantly playing, talking to an npc / character will make the character take off the headphones causing the headphones to keep playing music but with it getting tinny (fuck the spelling)

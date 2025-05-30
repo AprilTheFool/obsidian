@@ -1,0 +1,1 @@
+Miniature Card![[144070-gadgets-feature-storage-formats-of-the-damned-the-storage-mediums-sent-to-tech-heaven-image9-vorneqgzi1.avif]]![[unnamed 1.jpg]]
